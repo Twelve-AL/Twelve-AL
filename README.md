@@ -26,9 +26,7 @@ Gosto de manter o código simples e direto, sempre focando em aprender na práti
 - Compartilhar aprendizados sobre carreira, tecnologia e vida
 
 📫 Como me encontrar: 
-linkedin www.linkedin.com/in/carlos-alberto-cordeiro-5153291a2
-.
-instagram https://www.instagram.com/ar.doze/ 
+linkedin www.linkedin.com/in/carlos-alberto-cordeiro-5153291a2 || instagram https://www.instagram.com/ar.doze/ 
 
 ---
 
